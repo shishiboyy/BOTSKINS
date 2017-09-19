@@ -3,20 +3,10 @@ THIS IS A STEAM ITEM CHECKER TO MAKE YOU SAFE TRADE ,
 https://steamcommunity.com/tradeoffer/new/?partner=337660166&token=fY0GnhGG
 KNIFE TO KNIFE ITEM:CHECKER PROGRAM™
 
-ːsteamhappyː[b]Businessman / Collector / Betting / Trading[/b] ːsteamhappyː
+Businessman / Collector / Betting / Trading
+![checker](https://user-images.githubusercontent.com/32093667/30591732-9049a9e8-9d76-11e7-8d22-d555d8b94ffe.PNG)
 
-[h1]PLEASE READ MORE INFORMATIONS BELOW[/h1]
-► If you want to trade, just simply add me and message me. 
-► If I added you, simply means I want to trade with you. Hoping we'll have a nice deal. 
-► If I don't have any items on my inventory, please check my storage. 
-►  I don't add any people on my main account. 
-► I keep items on my main account for safety purpose. 
-► I know all types of scam so don't dare. 
-► I am not in the habit of answering personal questions. 
-► Disrespectful act will immediately have you reported/blocked. 
-► Calling me "scammer" will close the deal. I hate scammers and don't ever call me one as I never do such thing!! 
-►  You must agree with the terms and conditions I have on trading. If you can't, sorry but we won't be having a trade then. 
-![github](https://user-images.githubusercontent.com/32093667/30588489-806f460c-9d69-11e7-8f12-1d6b88fc44b2.PNG)
+
 INFORMATIONS AND TRADING POLICY! 
 MY INVENTORY	
 
