@@ -6,7 +6,7 @@ KNIFE TO KNIFE ITEM:CHECKER PROGRAM™
 Businessman / Collector / Betting / Trading
 ![checker](https://user-images.githubusercontent.com/32093667/30591732-9049a9e8-9d76-11e7-8d22-d555d8b94ffe.PNG)
 
-![github](https://user-images.githubusercontent.com/32093667/30588489-806f460c-9d69-11e7-8f12-1d6b88fc44b2.PNG)
+![scammer](https://user-images.githubusercontent.com/32093087/30652873-13ad895e-9e5c-11e7-9239-2ec6a9994f86.png)
 INFORMATIONS AND TRADING POLICY! 
 MY INVENTORY	
 
